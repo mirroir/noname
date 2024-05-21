@@ -2,8 +2,6 @@
 
 Salut,
 
-euhh....
-
-pendant que t'es d'bout,
+tien....pendant que t'es d'bout,
 
 tu peux ferm...!
